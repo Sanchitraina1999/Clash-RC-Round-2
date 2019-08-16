@@ -1,8 +1,7 @@
 # Clash-RC-Round-2
-
 # Update 03
 
-Guys, It's time to start working vigorously on this project.
+--Guys, It's time to start working vigorously on this project.
 
 I NEED CONTRIBUTION FOR ALL OF YOU!
 
